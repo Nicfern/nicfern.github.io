@@ -1,2 +1,0 @@
-# nicfern.github.io
-CV
